@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Peykar.
 - 👀 I’m an Persian Freedom Fighter.
 - 🌱 my dream is a free, high speed, high quality and uncencored Internet for everyone, everywhere!
-- 💞️ I’m looking to collaborate on anyproject that makes lives easier
+- 💞️ I’m looking to collaborate on anyproject that makes lifes easier.
 - 📫 How to reach me? you can't, I'm invisible. you know what I mean.
 
 
